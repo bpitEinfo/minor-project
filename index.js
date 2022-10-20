@@ -1,1 +1,0 @@
-bakchodi ke lakshan dikhata hun
